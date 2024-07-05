@@ -2,7 +2,7 @@
 - 👀 I’m interested in Business, AI Cloud Tech, Strategy, Design, AI App Build, Tech Adotpion, Management, Marketing, Low-Code, Fusion development, Cybernetics
 - 🌱 I’m currently learning Intelligent Apps in the multi vendor AI Clouds
 - 💞️ I’m looking to collaborate on design AI Copilots, AI Apps, AI Agents 🤖
-- 📫 How to reach me https://www.linkedin.com/in/krzysztof-majchrzycki/
+- 📫 How to reach me https://www.linkedin.com/in/krzysztof-majchrzycki/ or https://www.majchrzycki.com/
 - 😄 Pronouns: Kristof
 - ⚡ Fun fact: After more than 20 years of working in IT, I don't know ordinary everyday English 🤯, I only understand IT materials ☝️
 
